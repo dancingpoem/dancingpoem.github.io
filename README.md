@@ -1,9 +1,7 @@
 # Camille Belrin
-## _that crazy stupid poet dancer person_
+*that crazy stupid poet dancer person*
 
-### some of my latest poetry
-
-#### **[hello_world](https://dancingpoem.github.io/helloworld.txt)**
+## **[hello_world](https://dancingpoem.github.io/helloworld.txt)**
 ```
 here i have a techpoem.
 for in tech you do test some.
