@@ -1,6 +1,126 @@
 # Camille Belrin
 *that crazy stupid poet dancer person*
 
+## **[fear](https://dancingpoem.github.io/fear)**
+```
+fear lives in the streets outside your miniblinds
+  hazy with cigarette smog and fly wing parts
+  -- all keeping something truly awful out --
+  in the sodium street lamps of 
+  you-should-be-home-by-now
+  deep inside the shade of those 
+  unknown shadows that manifest 
+  all shapes of foe from those
+  rich headlights that burst
+  into and tow your pupils
+  across the wall into 
+  some unoccupyable space
+  where Escher would sit and draw
+  were this cafe not closed and dead
+  and burnt out and a former early model
+  Cherokee.
+
+a Cherorkee within where people smoked and 
+  seldom but less seldom there laughed
+  and felt some mercy, hopefully.
+a Cherokee like those ravers exploded in 
+  Slabs at precisely the moment we kissed in the boxvan
+  I hauled here from my last real 
+  home and into this terrible 
+  streetlit unknown 
+  that shown on your lonely corpse
+  facedown in a field unmysteriously 
+  dead from being yourself.
+a Cherokee probably with a blown headgasket 
+  that's nonetheless still running 
+  smelling of sweet antifreeze
+  and bubbling along about
+  to dive into whatever
+  ushers steam clouds up
+  through those iron lids.
+
+the street is not my life.
+the street is the opposite of that.
+it's this thing that's pushes and shoves
+  and never bends to my will.
+it's trying to kill 
+  all of us that it can.
+but it needs slowmotion.
+no street wishes to snap you up like a crocodile.
+no neighborhood is your baby's swooping hawk. 
+when you find the street has taken from you 
+  you've probably, in the streets opinion, 
+  accepted something, 
+  although it didn't make you whole,
+  from its minions;
+  or you've survived long enough
+  to frustrate some powerful 
+  warlord rapist resipiratory 
+  epidemicist because you're
+  able to read the words of 
+  helpful heartful chemists
+  that just want people a little better;.
+  not not higher;
+  not more better moral ethical;
+  just able to do what they set out to;
+  able to bob and weave around another 
+  lifted slab of sidewalk in a dark
+  corner near some apartment
+  where one year you had a bestfriend
+  but who knows who lives __there__ **now**
+
+in the movies it's the state of homelessness
+  of safetylessness that is sold to you
+  to most effectively scare you.
+she runs through the house eliminating safety
+  on all levels until she's at the top
+  and is perfectely set to never have to
+  give up that white safety she has as 
+  a beautiful martyr to domesticity.
+my wife went down with the ship
+  is where she's going to do 
+  running up the stairs away from
+  the boogeyman.
+for no good woman would ever survive 
+  the boogeyman, defiled, ruined, having
+  slept outside.
+"I'd rather die."
+
+i wouldn't rather die.
+i have continued to live although outside.
+yes I was raped.
+but only one time!
+and he tried to kill me which I escaped.
+don't i get any extra credit?
+will I ever be free and safe from hustlers
+  and pimps and plots to kill me for
+  telling with honor what I think?
+
+will I die tonight because I called out
+  a bully telling me he'd kill me
+  if I played my guitar at the 7-11
+  at Western and Sunset Street? 
+will I die because the victimization 
+  has escalationed to robbery
+  and rationalization strikes every mind 
+  doing to the kind the unkind?
+will I live or will I die tonight?
+that is pure fright.
+and if my life were important 
+  i'd insist on an answer that's right.
+
+but i know the answers are far away.
+the answers lie in the sequels.
+and the commentary.
+they're not for me to contemplate.
+all the street wants is sweat and 
+  fear and uncertainty
+  here i sit giving just that.
+i hope it's considered on my epitaph:
+  
+fear called her out and she called back
+```
+    
 ## **[hello_world](https://dancingpoem.github.io/helloworld.txt)**
 ```
 here i have a techpoem.
