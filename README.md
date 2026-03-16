@@ -1,7 +1,7 @@
 # Camille Belrin
 *that crazy stupid poet dancer person*
 
-## **[fear](https://dancingpoem.github.io/write-to)**
+## **[write-to](https://dancingpoem.github.io/write-to)**
 ```
 i write to distract myself:
 from my powerful emotions
