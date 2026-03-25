@@ -1,5 +1,5 @@
 # Camille Belrin
-*that crazy stupid poet dancer person*
+*every song is a poem*
 
 ## **[write-to](https://dancingpoem.github.io/write-to)**
 ```
