@@ -1,6 +1,36 @@
 # that trans girl who wanted to email you
 *every song is a poem*
 
+## **[naked](naked)**
+so here i am at the Hollywood library on Ivar
+  writing something i hope you can bare
+  -- or even read.
+who even reads anymore anywhere?
+who knows what makes a page so bare?
+i do so unfortunately care.
+
+i care about the moving flat-effect air.
+i care enough to worry about my underwear.
+i'm old enough to know that there's some wisdom here:
+naked people wondering how to see me.
+this all gives a wonderful speaking opportunity:
+
+"my nudity is not to offend you. my nakedness is natural.
+i ran out of clothes           
+-- and as everyone knows --
+we are all this chilly body lacking clothes
+  underneath all our comfortable robes"
+
+"my neighbor remember to know i'm nothing but 
+  just like you are and that's what is currently 
+  on show"
+
+"plesae defend me from whispers and silly hating
+  excusers."
+
+"please just go and get naked in a mirror and 
+  remember that we are all like this underneath the fear"
+  
 ## **[the murderer saving the world](https://dancingpoem.github.io/the-murderer-saving-the-world)**
 i have a gun to my head.
 i had a life i led:
