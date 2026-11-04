@@ -17,7 +17,13 @@ One way I have found productive when I feel overwhelmed as I do now is to elimin
 So, although the oldest part of my work habits says "One at a time. Slow and steady." this new wiser part of me says "The whole reason you use Git is to be able to manage projects. Work on what you will when you will and just -- for your own standard's sake -- make sure you take notes and save work to their separate repos. 
 Now, here's a poem that seems to of been brewing on the back burner a while
 
-##
+## **[every song is a poem](everysongisapoem)**
+
+every song is a poem.
+and the truly alone are unknown.
+grown bold and worn out despairing no one to with be sharing.
+the funny story about the sad thing the same color someone's wearing. 
+but the truth is their, them, are out there caring.
 
 ## **[naked](naked)**
 so here i am at the Hollywood library on Ivar
