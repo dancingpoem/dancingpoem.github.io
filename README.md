@@ -19,11 +19,11 @@ Now, here's a poem that seems to of been brewing on the back burner a while
 
 ## **[every song is a poem](everysongisapoem)**
 
-every song is a poem.
-and the truly alone are unknown.
-grown bold and worn out despairing no one to with be sharing.
-the funny story about the sad thing the same color someone's wearing. 
-but the truth is their, them, are out there caring.
+every song is a poem.  
+and the truly alone are unknown.  
+grown bold and worn out despairing no one to with be sharing.  
+the funny story about the sad thing the same color someone's wearing.   
+but the truth is their, them, are out there caring.  
 
 ## **[naked](naked)**
 so here i am at the Hollywood library on Ivar
